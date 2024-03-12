@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Yashvi2410
+- 👋 Hi, I’m @DEAD*_*
 - 👀 I’m interested in Software development
 - 🌱 I’m currently learning in diploma computer engineering 
 - 💞️ I’m looking to collaborate on ...
